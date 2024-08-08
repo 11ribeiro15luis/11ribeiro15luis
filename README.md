@@ -9,4 +9,4 @@ Meu nome é Luis Ribeiro
 - ### Você pode entrar em contato comigo 📧
  ribeiro.luis15@escola.pr.gov.br
 
-  ![](https://media1.tenor.com/m/HOTw3s-BsWMAAAAC/leo-lionel.gif)
+  ![](https://media1.tenor.com/m/Hz9Vujl_decAAAAC/mochi-mochi-mochi-peach-cat-gif.gif)
